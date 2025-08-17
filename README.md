@@ -26,6 +26,12 @@ The day wrapped up on an inspiring note, as students gained exposure to diverse 
 The day began at 9:30 AM in the auditorium with an enlightening session by Dr. Parminder Singh, Dean of Student Welfare, addressing students on their overall well-being and support systems at GNDEC.This was followed by an impactful lecture by Mr. Manpreet Singh from 10:00 AM to 11:00 AM, where he shared insights on "Fitness for Engineers", emphasizing the vital link between physical wellness and academic performance.The final expert talk of the morning was delivered by Brigadier P.S. Cheema, from 11:00 AM to 12:30 PM, leaving the students inspired with his experiences and perspectives on discipline, leadership, and resilience.Then we have are break and after breakwe have are P2P lectures.Followed by the lecture of physics by prof.Amarjot Kaur.
 Overall day was productive and empowering note, offering a perfect balance between inspiration, education, and logistical support. With exposure to motivational figures, domain-specific lectures, and campus procedures, the students moved one step closer to becoming well-rounded professionals, ready to embrace the engineering journey ahead.
 
+#Day-06(07/08/2025)
+Between 9:30 AM and 10:30 AM, Physics lectures handled by various professors across designated rooms. From 10:30 AM to 11:30 AM, the sessions continued with P2P lectures for different batches. After a short break from 11:30 AM to 12:30 PM, two important lectures were scheduled in the Auditorium: one by Dr. Lakhvir Singh Khana (CML Incharge) from 12:30 PM to 1:30 PM, followed by another by Dr. Jasvir Singh Grewal (NSS Incharge) from 1:30 PM to 3:00 PM.
+
+Conclusion: The timetable reflects a balanced blend of subject lectures and co-curricular activities, ensuring both academic learning and student engagement in institutional initiative 
+
+
 
 
 
